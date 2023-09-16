@@ -3,6 +3,9 @@ Cool Math Games: Ever wondered where you can play exciting cool math games onlin
 
 # Cool Math Games | Play Free Cool Math Games Online :- https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp https://rb.gy/meqmp 
 
+![Cool Math Games Play Online](https://github.com/maeuwoi/Cool-Math-Games/assets/145233352/0373a805-11fe-4923-a341-4290a0e8f9fa)
+
+
 # Cool Math Games Repository
 
 Welcome to the Cool Math Games repository! Here, you'll find a collection of entertaining and educational math-related games for all ages. Whether you're looking for fun puzzles, strategic challenges, or brain-teasing adventures, you'll find it here.
